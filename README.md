@@ -1,6 +1,6 @@
 # Sabal Parapurath
 
-+91-886-7530-776 | sabal.p@outlook.com | Bengaluru, Karnataka, India
+sabal.p@outlook.com | Bengaluru, Karnataka, India
 
 ## Summary
 
